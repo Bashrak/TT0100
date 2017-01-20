@@ -1,6 +1,6 @@
 # Portfolio - TT0100
 
-![](https://upload.wikimedia.org/wikipedia/commons/1/15/Samuel_L._Jackson_SDCC_2014_%28cropped%29.jpg)
+![](http://vignette1.wikia.nocookie.net/afrosamurai/images/3/32/Samuel_L_Jackson_-_1_-_Black_Snake_Moan.jpg/revision/latest?cb=20111111061445)
 
 ## Alaotsikko
 
