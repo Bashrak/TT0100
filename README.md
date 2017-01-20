@@ -1,6 +1,6 @@
 # Portfolio - TT0100
 
-
+![](https://fi.wikipedia.org/wiki/Samuel_L._Jackson#/media/File:Samuel_L._Jackson_SDCC_2014_(cropped).jpg)
 
 ## Alaotsikko
 
